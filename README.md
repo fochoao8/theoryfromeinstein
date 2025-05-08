@@ -4,3 +4,9 @@
 
 # Here it is
   E=(((m^2+e^2)+(p^2+c^2)+c^(2))/(t)+((A+F)+((log10(A+D)2)))
+
+# Conclusion
+  Everyone in my life has taught me something so far, 33 years of study, so could not have been done it alone
+  with everyone support.
+  I am autist. The theory I assume should be used for good.
+  Thanks to everyone. Especially my family.
